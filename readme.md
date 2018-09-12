@@ -1,0 +1,1 @@
+Larry the Looter stole the Concrete Donkey from Morbo the Destroyer while he was away in Reno.
